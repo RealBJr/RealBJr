@@ -1,6 +1,3 @@
-### Hi there 👋
-
-
 ### I'm the GOAT 🐐🐐🐐
 
 <!--
